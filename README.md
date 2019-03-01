@@ -1,1 +1,0 @@
-# Informatikachplzt.github.io
